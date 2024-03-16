@@ -3,7 +3,9 @@
 IMPROVE YOUR SKILLTREE.
 
 M.Sc. in Computer Science
+
 Game Designer & Developer
+
 Web Developer
 
 <!--
