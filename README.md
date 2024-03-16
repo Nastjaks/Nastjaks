@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+IMPROVE YOUR SKILLTREE.
+
+M.Sc. in Computer Science
+Game Designer & Developer
+Web Developer
+
 <!--
 **Nastjaks/Nastjaks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
