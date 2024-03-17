@@ -1,6 +1,8 @@
+Do magic | Improve your skilltree
+
 ## About Me
 
-🎓 Current M.Sc. in Computer Science student
+🎓 M.Sc. in Computer Science student
 
 🎮 Game Design & Developer
 
