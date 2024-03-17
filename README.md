@@ -1,4 +1,4 @@
-Do magic | Improve your skilltree
+Do magic | Improve your skilltree | ☾ ⋆ ☄︎. ·˚ * 🔭
 
 ## About Me
 
