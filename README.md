@@ -4,6 +4,6 @@ Do magic | Improve your skilltree | ☾ ⋆ ☄︎. ·˚ * 🔭
 
 🎓 M.Sc. in Computer Science student
 
-🎮 Game Design & Developer
+🎮 Game Designer & Developer
 
 💻 Web Developer
